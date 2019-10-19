@@ -10,3 +10,17 @@
 - Talk about the meaning of trust. Help a child see the connetion between telling the truth and having others trust what he says.
 
 ## Chapter 4
+- Special stimulation is not necessary, what children really need to grow and develop is unhurried time with caring adults, people who will focus on the child and follow his cues without distraction or expectations.
+- How to grow a healthy brain:
+  - Demonstrate affection, interest, and acceptance
+  - Practice the art of conversation
+  - Read, read, read
+  - Encourage curiosity, safe exploration, and hands-on learning
+  - Limited television time
+  - Use discipline to teach, not to shame or humiliate
+  - Recognize and accept your child's uniqueness
+  - Provide learning experiences that use the senses
+  - Provide time for your child's learning through play
+  - Select child care carefully-and stay invovled
+  - Take care of yourself
+ - One effective way to invite conversation with a preschooler is to ask curiosity questions which often begin with the wold why and how. When they answer these questions they also call for focused and attentive listening from parents, something that demands a surprising amount of energy and patience. Just remember, relationship and connection support brain development.
